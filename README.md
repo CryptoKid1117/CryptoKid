@@ -1,0 +1,2 @@
+# CryptoKid
+earn panny
